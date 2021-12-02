@@ -5,7 +5,7 @@ Digital Project Manager at ZIGMA Interactive®
 and entrepreneurs in the development of multimedia
 projects to create innovation and drive sales.
 
-- How to reach me -
+How to reach me:
 
 📫 Links:
 - 🌎 https://zigma.mx
