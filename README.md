@@ -9,5 +9,5 @@ How to reach me?
 📫 Links:
 
 - 🌎 https://zigma.mx
-- 📸 https://instagram.com/preguntaleaoso/
+- 📸 https://instagram.com/magiadeloso/
 - 💼 https://linkedin.com/in/cesarzigma/
